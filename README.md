@@ -1,11 +1,1 @@
-# cffd
-ddd
-ddd
-d
-d
-d
-d
-ddsf
-
-g
-dgf
+# Проверка 1 от 20.02.2024
